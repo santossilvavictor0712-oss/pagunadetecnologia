@@ -1,0 +1,2 @@
+# pagunadetecnologia
+principais conceito tecnologicos
